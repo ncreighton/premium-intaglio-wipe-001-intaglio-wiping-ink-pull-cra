@@ -1,0 +1,2 @@
+# premium-intaglio-wipe-001-intaglio-wiping-ink-pull-cra
+Tired of inconsistent ink pulls and wasted wiping ink? Your intaglio craft lab needs a digital command center.  This Notion template eliminates guesswork by systematically tracking every ink pull, wiping technique, and material recipe. It's the only lab designed specifically for intaglio artists who demand precision and efficiency without losing th
